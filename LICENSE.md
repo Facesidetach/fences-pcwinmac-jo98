@@ -1,4 +1,4 @@
-# 
+# Léger Fences préréglages pour Mac OS | Professionnel Fences préréglages pour PC Windows. Avec suppression de fichiers temporaires et analyse de l'espace disque — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
